@@ -1,2 +1,2 @@
 # PYTHON-LERANING-FOR-BEGINNERS
-want to le
+want to learn automation network. please need a mentor  to guide me.
